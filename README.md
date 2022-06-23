@@ -44,3 +44,15 @@ Brief tips for how to manage a successful job searching
 https://bit.ly/3wuiBKV
 
 https://techmonster.co.il/linkedin-guide/
+
+
+## מקורות נוספים מומלצים:
+
+https://www.youtube.com/watch?v=TspN1NLcabM&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=159 </br>
+https://www.youtube.com/watch?v=z7O1DMzncLE&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=160 </br>
+https://www.youtube.com/watch?v=pzq37L4UBUU&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=158 </br>
+</br>
+https://www.youtube.com/watch?v=Tt08KmFfIYQ&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=114</br>
+</br>
+https://www.youtube.com/watch?v=FJUfQ3u198E&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=87</br>
+https://www.youtube.com/watch?v=EVYB28lBWU0&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=88</br>
