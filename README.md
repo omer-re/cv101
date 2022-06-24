@@ -56,3 +56,23 @@ https://www.youtube.com/watch?v=Tt08KmFfIYQ&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vB
 </br>
 https://www.youtube.com/watch?v=FJUfQ3u198E&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=87</br>
 https://www.youtube.com/watch?v=EVYB28lBWU0&list=PLTBLOvkfAOMXZHkahS_FQVjWF1t8vBSGK&index=88</br>
+
+
+### Cliches and buzzwords to aviod:
+
+https://resumegenius.com/blog/resume-help/resume-buzzwords
+https://cresuma.com/career-guides/resume-buzzwords-cliches/
+https://www.careercontessa.com/advice/resume-buzzwords/
+
+[Resume Buzzwords to Avoid](https://www.thebalancecareers.com/resume-buzzwords-to-avoid-1287368)
+
+[מילים נרדפות להחלפת מילים שכבר נמאס לשמוע](https://www.careercontessa.com/advice/resume-buzzwords/)
+
+[Power Words to Use in Your Resume](https://www.thebalancecareers.com/action-verbs-and-power-words-for-your-resume-2063179)
+
+words list to remove from your cv
+```
+https://www.ivyexec.com/career-advice/2019/resume-cliches/
+https://business.tutsplus.com/articles/bad-resume-phrases--cms-29171
+https://professionalresumewriters.com/blog/10-most-cliche-resume-phrases/
+```
